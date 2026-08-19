@@ -4,8 +4,8 @@
 
 <img align="right" width="70%" src="https://files.catbox.moe/8ig6x8.png">
 <img align="left" width="15%" src="https://files.catbox.moe/japhxa.png"> </br>
-<b>sfawtde</b>, tsftl, verity, forsaken, phighting, roblox
-celeste, minecraft, steven universe, rhythm games, vocaloid
+<b>sfawtde</b>, tsftl, verity, forsaken, phighting, roblox,
+celeste, minecraft, steven universe, rhythm games, vocaloid,
 chonny jash, milgram, alnst, zomst, fnaf</br>
 
 <img align="left" width="5%" src="https://files.catbox.moe/otxjlz.png"> 
@@ -14,7 +14,7 @@ i as an alter am 20 years old, and the body is 18.
 if you are younger than 18 please be wary of me, but if you're 18-25 feel free to int as you wish. 
 fellow systems interact, we love making friends with different systems. 
 <img align="left" width="5%" src="https://files.catbox.moe/vln1wi.png"> 
--16, basic dni criteria. do not talk about sexual things with me if you are under 18
-dni if you hate forsaken or sfawtde, current hyperfixations and we dont like consuming hate abt either
+-16, basic dni criteria. do not talk about sexual things with me if you are under 18.
+dni if you hate forsaken or sfawtde, current hyperfixations and we dont like consuming hate about either.
 if you are critical of the forsaken fandom that's fine though. just dont hate on the game around me</br>
 <img align="center" width="70%" src="https://files.catbox.moe/t56tn0.png"></br>
