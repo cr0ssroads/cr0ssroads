@@ -19,7 +19,7 @@ fellow systems interact, we love making friends with different systems.
 -16, basic dni criteria. do not talk about sexual things with me if you are under 18.
 dni if you hate forsaken or sfawtde, current hyperfixations and we dont like consuming hate about either.
 if you are critical of the forsaken fandom that's fine though. just dont hate on the game around me</br>
-<img align="left" width="10%" src="https://files.catbox.moe/s8406v.png"> 
+<img align="left" width="13%" src="https://files.catbox.moe/8wmqfs.png"> 
 @domshaka.bsky.social</br>
 @chickencringe [twt]</br>
 @lhemma_art [twt]</br>
