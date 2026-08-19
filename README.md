@@ -18,5 +18,10 @@ fellow systems interact, we love making friends with different systems.
 dni if you hate forsaken or sfawtde, current hyperfixations and we dont like consuming hate about either.
 if you are critical of the forsaken fandom that's fine though. just dont hate on the game around me</br>
 
+ac  wall </br>
+@domshaka.bsky.social
+@chickencringe [twt]
+@lhemma_art [twt]
+@redsonsrage [tiktok]
 <img align="center" src="https://komarev.com/ghpvc/?username=cr0ssroads&style=flat&color=ebdddd&label=hi" alt="view+counter"> 
 <img align="center" width="70%" src="https://files.catbox.moe/t56tn0.png"></br>
